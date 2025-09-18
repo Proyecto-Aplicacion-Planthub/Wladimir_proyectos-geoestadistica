@@ -1,0 +1,1 @@
+# Wladimir_proyectos-geoestadistica
